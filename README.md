@@ -1,3 +1,4 @@
+![Lexie avatar by darth nox ad](https://user-images.githubusercontent.com/77518058/123033082-7dd8b080-d42a-11eb-8baf-1323379d6b44.png)
 # Lexie-Credits
 
 <<Credits>>
